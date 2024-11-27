@@ -9,4 +9,4 @@
 - [Artfight](https://artfight.net/~Mika_)
 - [Instagram](https://www.instagram.com/vampirickaito/)
 
-`❥`
+![vocaloid](https://github.com/user-attachments/assets/829ba8fc-e21b-48f4-a69a-61fd07d43745)

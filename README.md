@@ -9,7 +9,7 @@
 - [Artfight](https://artfight.net/~Mika_)
 - [Instagram](https://www.instagram.com/vampirickaito/)
 
-![vocaloid](https://github.com/user-attachments/assets/829ba8fc-e21b-48f4-a69a-61fd07d43745)
+![roses](https://github.com/user-attachments/assets/328d7ccc-606d-4d69-be30-05ca106a5088)
 
 ![gligar](https://github.com/user-attachments/assets/ce4cb8d9-6592-4655-9226-925996c9f49f)
 ![maru](https://github.com/user-attachments/assets/6c9c81bd-56a8-4625-a076-8191ce108717)

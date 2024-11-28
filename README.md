@@ -1,4 +1,4 @@
-![undefined - Imgur](https://github.com/user-attachments/assets/8e5f7c59-1767-4560-961d-bb207a266bc1)
+![70b567a29e645ba554adb3069ba56292](https://github.com/user-attachments/assets/8fd36a64-575d-496f-a16e-9c3118b5996b)
 
 `❥` **R**eaper / **M**ika ! Use whichever you'd prefer :3 
 

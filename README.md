@@ -34,3 +34,5 @@
 ![david-bowie](https://github.com/user-attachments/assets/f1ccf19e-f6bc-4cb1-b30a-418c65c95c29)
 ![ziggy-stardust](https://github.com/user-attachments/assets/e212ac32-46cf-428f-b68a-8931c50d153c)
 ![duran-duran](https://github.com/user-attachments/assets/deef32da-da9a-45cb-bd71-db3e8abe1179)
+
+(㇏(•̀ᵥᵥ•́)ノ)

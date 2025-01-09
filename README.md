@@ -1,4 +1,4 @@
-![2024_12_05_0f1_Kleki (1)](https://github.com/user-attachments/assets/e52fd2d6-f38e-40dc-81d6-5775cc1f05c0)
+![2025_01_09_0ke_Kleki](https://github.com/user-attachments/assets/3d113af4-f289-4b91-9591-f4fe85a9239f)
 
 `❥` **R**eaper / **M**ika ! Use whichever you'd prefer :3 
 

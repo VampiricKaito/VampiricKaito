@@ -7,6 +7,7 @@
 `❥` **S**ome places you __might__ find content from me art or not !
 
 - [Artfight](https://artfight.net/~Mika_)
+- [PaperDemon!!!](https://www.paperdemon.com/app/u/VampiricKaito)
 - [Instagram](https://www.instagram.com/vampirickaito/)
 - [Kin list! (should be viewed on pc)](https://vampirickaito.straw.page)
 - [Feed me !!!](https://tamanotchi.world/18433c)

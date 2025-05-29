@@ -1,4 +1,4 @@
-![Image](https://github.com/user-attachments/assets/18a82e18-2853-489f-bac3-cf2fa3b92fea)
+![Image](https://github.com/user-attachments/assets/43463970-ea94-467a-8fe9-fc09ff50dcca)
 
 `❥` **R**eaper / **M**ika ! Use whichever you'd prefer :3 
 

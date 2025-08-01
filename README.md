@@ -2,7 +2,7 @@
 
 `❥` **R**eaper / **M**ika ! Use whichever you'd prefer :3 
 
-`❥` **H**e / **T**hey / **S**tars , **6**teen 
+`❥` **H**e / **T**hey / **S**tars , **7**teen 
 
 `❥` **S**ome places you __might__ find content from me art or not !
 

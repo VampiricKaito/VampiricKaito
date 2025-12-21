@@ -1,5 +1,4 @@
-![Image](https://github.com/user-attachments/assets/d82562ef-83e8-4fa2-a326-3d70bd3f628d)
-
+![Image](https://github.com/user-attachments/assets/3e5c3676-b36d-4331-b5df-a756cb79428d)
 `❥` **R**eaper / **M**ika ! Use whichever you'd prefer :3 
 
 `❥` **H**e / **T**hey / **S**tars , **7**teen 

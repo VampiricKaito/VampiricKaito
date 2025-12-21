@@ -1,13 +1,12 @@
 ![Image](https://github.com/user-attachments/assets/3e5c3676-b36d-4331-b5df-a756cb79428d)
 
-`❥` **R**eaper / **M**ika ! Use whichever you'd prefer :3 
+`❥` **M**ika !
 
 `❥` **H**e / **H**im , **6**teen 
 
 `❥` **S**ome places you __might__ find content from me art or not !
 
 - [Artfight](https://artfight.net/~Mika_)
-- [PaperDemon!!!](https://www.paperdemon.com/app/u/VampiricKaito)
 - [Instagram](https://www.instagram.com/vampirickaito/)
 - [Sign ATA here :3](https://vampirickaito.atabook.org/)
   

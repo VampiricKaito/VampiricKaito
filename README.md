@@ -1,7 +1,8 @@
 ![Image](https://github.com/user-attachments/assets/3e5c3676-b36d-4331-b5df-a756cb79428d)
+
 `❥` **R**eaper / **M**ika ! Use whichever you'd prefer :3 
 
-`❥` **H**e / **T**hey / **S**tars , **7**teen 
+`❥` **H**e / **H**im , **6**teen 
 
 `❥` **S**ome places you __might__ find content from me art or not !
 

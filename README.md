@@ -7,7 +7,7 @@
 `❥` **S**ome places you __might__ find content from me art or not !
 
 - [Artfight](https://artfight.net/~Mika_)
-- [Instagram](https://www.instagram.com/vampirickaito/)
+- [Instagram](https://www.instagram.com/v3mika_/)
 - [Sign ATA here :3](https://vampirickaito.atabook.org/)
 - [For commissioning me ! Pony town skins or art!](https://vampirickaito.carrd.co)
   

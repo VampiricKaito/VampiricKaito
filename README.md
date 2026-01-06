@@ -21,18 +21,4 @@
 ![tumblr_pdtswyY1sp1wpplaao6_250](https://github.com/user-attachments/assets/c746052d-a836-4072-ae03-278c62d9f80f)
 ![dhmin0](https://github.com/user-attachments/assets/be9847b1-4b26-4b7e-af02-629a730af181)
 
-![bat4](https://github.com/user-attachments/assets/907e0a6a-001c-4d7b-a8bf-84615b8777bd)
-
-![ghost](https://github.com/user-attachments/assets/8d72e9a3-8847-40d0-8a00-188bfb790de7)
-![spooky](https://github.com/user-attachments/assets/4c619cc6-bbda-496a-bf7b-66695dc60978)
-![musicplay](https://github.com/user-attachments/assets/c9ab3213-c867-45b8-8d1b-603e71033249)
-![oingoboingo](https://github.com/user-attachments/assets/80c30c9f-0401-4505-9c25-b79d894f29f9)
-![sanrio1](https://github.com/user-attachments/assets/3809b920-5fda-4bf4-a9fe-0e2fe1499acf)
-![monsterhigh](https://github.com/user-attachments/assets/040288e6-38de-4ecb-990b-bf267a6eb1d6)
-![pokemon](https://github.com/user-attachments/assets/805bc819-625f-458e-82f3-ed361733defc)
-![batmoon](https://github.com/user-attachments/assets/84415a7f-84b9-4511-bb2b-5a92c44cbb04)
-![1389655rhtnwhwtel](https://github.com/user-attachments/assets/c1bba4f0-f7d7-4bf9-a3c4-42573790a67f)
-![a1](https://github.com/user-attachments/assets/dc947292-5d16-4aa6-9b3f-69fd845f2afc)
-![a2](https://github.com/user-attachments/assets/21d5c674-a03d-4494-b292-af40d8fd2cba)
-
 (㇏(•̀ᵥᵥ•́)ノ)
